@@ -1,0 +1,2 @@
+# judjor
+alcance ilimitado
